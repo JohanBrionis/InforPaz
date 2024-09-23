@@ -1,0 +1,1 @@
+https://inforpaz.netlify.app/
